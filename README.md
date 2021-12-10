@@ -21,6 +21,7 @@ Kepuasan yang klien  rasakan terhadap pelayanan yang dilakukan perawat tentu aka
 
 
 Referensi 
+
 Davoodvand, S., Abbaszadeh, A., & Ahmadi, F. (2016). Patient advocacy from the clinical nurses' viewpoint: a qualitative study. Journal of medical ethics and history of medicine, 9, 5.
 Eastern Illinois University. (2021). The Importance Of Nursing Advocacy. Retrieved from https://learnonline.eiu.edu/articles/rnbsn/importance-of-nursing-advocacy.aspx
 Karaca, A., & Durna, Z. (2019). Patient satisfaction with the quality of nursing care. Nursing Open, 6(2), 535–545. https://doi.org/10.1002/nop2.237
